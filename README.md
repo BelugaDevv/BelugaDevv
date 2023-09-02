@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BelugaDevv
+- 👀 I’m interested in building modeling and selling
+- 🌱 I’m currently learning how to build and script
+- 💞️ I’m looking to collaborate on a new cool game
+- 📫 How to reach me - My dis is Belugail (no numbers)
